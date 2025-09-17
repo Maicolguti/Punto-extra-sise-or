@@ -5,3 +5,4 @@ Valentina Ruiz Medina oooooo yaya
 
 
 Mi hobbie es estudiar, guitar la tocarra y hacer Rappi waaaa (Maicol)
+MI hobbie es leer, jugar voleibol, pintar y ver series. (Valentina)
